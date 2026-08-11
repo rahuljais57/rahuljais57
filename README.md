@@ -47,7 +47,7 @@ I am an enthusiastic and detail-oriented student pursuing a career in **Networki
 
 - **Email:** [rahulj2074@gmail.com](mailto:rahulj2074@gmail.com)  
 - **Phone:** +977 9808014487  
-- **Instagram:** [@ig_rahul_010](https://www.instagram.com/ig_rahul_010)
+- **Instagram:**
 
 ---
 
